@@ -20,7 +20,7 @@
 
 *About ME
 
-**My interests include anime, video games, walking, video making, animation, and legos
+**My interests include anime, video games, walking, video making, animation, legos, making custom lego anime figures, and custom anime army men figures (turining plastic army men into iconic anime characters doing cool poses)
 
 **websites that I recommend 
 https://www.crunchyroll.com/premium?utm_source=google&utm_medium=paid_cr&utm_campaign=CR-Paid_Google_Web_Conversion_US-CA_US_Trademark_SVOD&utm_term=crunchyroll&referrer=google_paid_cr_CR-Paid_Google_Web_Conversion_US-CA_US_Trademark_SVOD&gad_source=1&gclid=Cj0KCQjwjNS3BhChARIsAOxBM6ri_OOxqkdOpPkwtTd5DLBS91llcs6OKUEyeSa6Rd52hp5f2eaXzWAaAvhdEALw_wcB
