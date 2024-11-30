@@ -36,4 +36,5 @@ A classic platform for people who want to enjoy classic videos and movies. Alot 
 
 
 
-![PythonHelloInput](https://github.com/user-attachments/assets/963a0a7e-fdc5-40a4-8feb-fbb1b9507d0c)
+![PythonHelloInput](https://github.com/user-attachments/assets/8f1d2161-f035-495f-a306-963df422ee1c)
+
