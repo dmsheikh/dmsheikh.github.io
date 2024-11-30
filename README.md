@@ -31,3 +31,9 @@ A Good place to watch anime and delve deeper into different worlds and check out
 https://www.youtube.com/
 
 A classic platform for people who want to enjoy classic videos and movies. Alot of my favorite funny videos were posted on this site and Ive been using youtube since the days of my childhood. 
+
+
+
+
+
+![PythonHelloInput](https://github.com/user-attachments/assets/963a0a7e-fdc5-40a4-8feb-fbb1b9507d0c)
